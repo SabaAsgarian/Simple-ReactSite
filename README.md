@@ -4,8 +4,7 @@
 
 
 
-
-![lg](https://github.com/user-attachments/assets/86541bd8-a8e3-41f8-a3a3-16b3573a2893)
+![light](https://github.com/user-attachments/assets/9af24881-b379-4af2-964a-8d0a758eaec9)
 
 
 
